@@ -1,16 +1,27 @@
-Title: Moms Club Board
+Title: GPMC Board
 
-BOARD BIOS and PHOTOS GO HERE! At the end of each bio we should list each email addresses: GPMCpresident@gmail.com
-GPMCvp@gmail.com
-GPMCmembership@gmail.com
-GPMCtreasurer@gmail.com
-GPMCsecretary@gmail.com
+##Emily Moore, Treasurer (GPMCtreasurer@gmail.com)
+Emily grew up in Rochester, Michigan and currently resides in Grosse Pointe Woods. She
+has two daughters. She enjoys singing, yoga, baking, running and reading.
 
-Lindsey Schorer, President
-I'm Lindsey Schorer and I am honored to be President for GPMC this year after serving as Treasurer last year and Brunch Bunch coordinator for a few years, too. My husband Anthony and I live in Grosse Pointe Woods with our three kids. I grew up out of state but have lived here for 11 years. I am so happy to have found this club and the many outlets it provides for moms and children. It can be quite an adjustment to stay at home parenting and this club has helped immensely. I have met so many wonderful women and I love that you can be a little or a lot involved depending on your comfort level and your free time. I encourage you to become a part of this group - you will not regret it!
-GPMCPresident@gmail.com
+##Sarah Seger, Secretary (GPMCsecretary@gmail.com)
+Sarah is from Okemos, Michigan. She has lived in Grosse Pointe Woods for just over two years. She
+has two children. She loves to crochet, read, exercise, listen to podcasts, and do candlelight yoga.
+While sometimes stressful, she enjoys doing projects around her house.
 
-Ashley Bahr, Vice President
-Nicole Newman, Membership VP
-Emily Brenner Stump, Secretary
-Jodi Haraldson-Noonan, Treasurer
+##Lindsay Studders, Membership (GPMCmembership@gmail.com)
+Lindsay is from Columbus, Ohio area where she grew up with her four siblings.
+After college she met her husband and they moved to Detroit together. She has
+two daughters. She has been a GPMC member for almost two years where she
+has gained lifelong friends and has learned the fun &amp; lighthearted approach to
+this thing called parenting.
+
+##Abby Klotz, Vice President (GPMCvp@gmail.com)
+Abby grew up in Rochester, Michigan and currently lives in Grosse Pointe Woods. She
+couldn’t be happier living where she does &amp; loves the sense of community that the
+Grosse Pointes offer. She has a son &amp; loves to read, cook, and be social!!!
+
+##Laura Tannheimer, President (GPMCPresident@gmail.com)
+Laura is from Grosse Pointe Park. She has 2 year old twins and a 4 year old. In her spare
+time, she loves to make pottery, swim, cook, travel, read, garden, and spend time
+outdoors.
