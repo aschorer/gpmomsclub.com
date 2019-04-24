@@ -7,10 +7,10 @@ A monthly meeting with craft projects for moms and kids. Activities include ever
 Book worms unite! We select a new book to read each month and follow it up with fun discussion at a GP locale.
 
 ##Brunch Bunch
-Brunch bunch is a morning playdate at a member’s home while enjoying brunch potluck! Attendees sign up to bring a breakfast/brunch food or beverage to share. fun time to get together for a play date while enjoying tasty breakfast food! Always one of the club’s most popular events!
+Brunch bunch is a morning playdate at a member’s home while enjoying brunch potluck! Attendees sign up to bring a breakfast/brunch food or beverage to share. It's always fun to get together for a play date while enjoying tasty breakfast food, and is one of the club’s most popular events!
 
 ##Coffee Club
-Another morning get together for moms to socialize and caffeinate while the kids play! Meets monthly in a member’s home during the cold months and at the tot lot during the summer.
+Another morning get together for moms to socialize and caffeinate while the kids play! Meets monthly in a member’s home during the cold months and at the Tot Lot during the summer.
 
 ##Cocktails & Cuisine
 A mom's-only evening event that meets monthly. Members bring food corresponding to the month's chosen theme for a tasting, recipe exchange and a much-needed night out from the kids!
@@ -44,4 +44,4 @@ Originally designed to help moms with late-working spouses, this event has taken
 We provide social media through our members-only Facebook groups for us to share ideas, coordinate activities or just plain chat about whatever comes to mind. Our private pages are always open and a great club resource! We also offer a "Garage Sale" page to buy and sell children's items between group members.
 
 ##Special Events
-The club hosts a few special events each year.  Past events have included a New Year’s Celebration with spouses, a couples bowling and cocktails event, a family friendly summer BBQ and splash pad fun, and a summer’s end cocktail partyfor members.
+The club hosts a few special events each year.  Past events have included a New Year’s Celebration with spouses, a couples bowling and cocktails event, a family friendly summer BBQ and splash pad fun, and a summer’s end cocktail party for members.
